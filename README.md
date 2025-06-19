@@ -100,7 +100,7 @@ In Wisconsin’s warmer months, outdoor living is a must. A custom deck expands 
 * Multi-level designs
 * Lighting and railing options
 
-If you’re looking for the **best professional Milwaukee deck builder**, trust teams that bring local experience and creative solutions. [Milwaukee & Southeast Wisconsin Deck Builders](https://www.skirrowbuild.com/services/milwaukee-custom-decks/) like Skirrow Design Build are known for innovation and reliability. As **Southeast Wisconsin deck builders**, they are also recognized as **SE Wisconsin's #1 Custom Deck Builder: Design & Installation**.
+If you’re looking for the [**best professional Milwaukee deck builder**](https://targetedwebtraffic.medium.com/why-a-custom-deck-is-the-best-home-upgrade-for-summer-in-milwaukee-408d5d3e1ca9), trust teams that bring local experience and creative solutions. [Milwaukee & Southeast Wisconsin Deck Builders](https://www.skirrowbuild.com/services/milwaukee-custom-decks/) like Skirrow Design Build are known for innovation and reliability. As **Southeast Wisconsin deck builders**, they are also recognized as **SE Wisconsin's #1 Custom Deck Builder: Design & Installation**.
 
 **Top Deck Builders in Southeast Wisconsin:**
 
